@@ -1,1 +1,1 @@
-# https://boosttoncompte.te
+# https://t.me/boosttoncomptee
